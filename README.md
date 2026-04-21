@@ -1,2 +1,1 @@
-# Web-Store
-web-store
+https://nicepage.com/ru/t/6333468/chasto-zadavaemye-voprosy-o-dizayn-studii-shablon
