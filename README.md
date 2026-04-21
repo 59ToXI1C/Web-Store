@@ -1,1 +1,1 @@
-https://nicepage.com/ru/t/6333468/chasto-zadavaemye-voprosy-o-dizayn-studii-shablon
+https://craftum.com/preview/246/
